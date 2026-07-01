@@ -19,5 +19,4 @@ undergraduate programme.
 - African Mine Services (AMS), Tarkwa — Attachment, May 2026
 
 ## Connect
-LinkedIn: [Your LinkedIn URL here]# minerals-engineering-
-study work and projects - UMaT Minerals Engineering 
+LinkedIn: https://www.linkedin.com/in/bernard-appiah-56783a414
